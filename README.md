@@ -1,4 +1,4 @@
-# qinju2
+# 永久发布地址www.qinju2.com
 :sunglasses::sunglasses:萌九AV 地址发布:sunglasses::sunglasses:
 ==
 :heart: :point_right: 【地址一】 ：https://www.heisiwa.icu
